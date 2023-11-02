@@ -1,16 +1,13 @@
-### Hi there 👋
+# Jonah Paradise (he/him)
 
-<!--
-**MissedBag251417/MissedBag251417** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Am gamer
 
-Here are some ideas to get you started:
+Goated with the swaws
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Mod for the Klein Oak Esports Club
+
+Death metal/core is the best music ever and if you disagree you are wrong
+
+I play guitar and do vocals
+
+I love CS and math
